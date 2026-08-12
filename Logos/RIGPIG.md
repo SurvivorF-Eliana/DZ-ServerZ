@@ -1,0 +1,1 @@
+https://giphy.com/stickers/transparent-CXavF2H3zAjoTjd2Kz
